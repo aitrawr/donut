@@ -1,3 +1,5 @@
+merci GoodKat d'avoir fix mon issue, me sens tout bête ^^' 
+
 salut, si tu viens d'overdrive déjà merci et cc et no toxicité j'ai aucun ego j'veux simplement reussir mon ptn de projet de con.
 
 Déjà ce qui ma donné envie de faire ce projet c'est cette vidéo la ou un mec fait exactement c'que j'veux faire en language C. 
